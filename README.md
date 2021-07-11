@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Susana
 - 👀 I’m interested in looking at how fishing communities perceive climate change and its impacts. 
-- 🌱 I’m currently learning A LOT and understanding very little.
+- 🌱 I’m currently learning A LOT
 - 💞️ I love rice
 - 📫 you can reach me on susana.vulawalu@outlook.com
 Vinaka!
